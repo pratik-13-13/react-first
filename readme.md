@@ -8,4 +8,4 @@ My role in this company full stack developer intern<br>
 My role in this company full stack developer intern<br>
 My role in this company full stack developer intern<br>
 My role in this company full stack developer intern<br>
-so this is the project info i hope you undersatand
+so this is the project info i hope you undersatand  
