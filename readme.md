@@ -1,1 +1,3 @@
-Hello everyone im a new join here for the 
+Hello everyone im a new join here.
+My self pratik pithiya
+My role in this company full stack developer intern
